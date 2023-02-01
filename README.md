@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about any interesting fun facts,innovative ideas etc
 - 📫 How to reach me: https://github.com/Aashritha79
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: humorh
+- ⚡ Fun fact: humor
 
